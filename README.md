@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ollibowers, and this is the side account of [@olllllli](https://github.com/olllllli)
+- 👀 I’m interested in creating stuff!
+- 🌱 I’m currently learning Computer Science at UNSW!
+- 💞️ I’m looking to collaborate on anything? I like learning new stuff!
